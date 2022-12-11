@@ -70,4 +70,3 @@ English (B2), Russian (Native speaker).
 
 ### Interests
 I enjoy going to swimming pool and pole dance, reading books and doing creative activities.
-__
