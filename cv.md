@@ -69,4 +69,5 @@ English (B2), Russian (Native speaker).
   High responsibility level in front of my tasks, for my actions.  
 
 ### Interests
-I enjoy going to swimming pool and pole dance, reading books and doing creative activities.
+I enjoy going to swimming pool and pole dance, reading books.
+
